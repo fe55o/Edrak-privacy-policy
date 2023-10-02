@@ -1,1 +1,0 @@
-# Edrak-privacy-policy
